@@ -30,4 +30,4 @@
 
 ## Connect with Me
 - [LinkedIn](https://www.linkedin.com/in/fuse-thanakorn/)
-- [Email](mailto:thanakorn.m@muze.co.th)
+- [Email](mailto:thanakorn13.work@gmail.com)
